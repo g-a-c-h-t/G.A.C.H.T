@@ -6,4 +6,4 @@ Pensé comme un langage visuel partagé, G.A.C.H.T propose une autre manière de
 
 Une invitation pour chacun à s’emparer d’un langage visuel commun et à transformer des initiatives militantes individuelles, souvent disparates, en un grand mouvement collectif reconnaissable.
 
-à télécharger ★
+À télécharger ★
